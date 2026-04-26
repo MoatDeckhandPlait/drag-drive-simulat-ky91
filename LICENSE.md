@@ -1,4 +1,4 @@
-
+elite Scripts for drag drive simulator offers the most advanced drag drive simulator Script, with auto-farm and anti-ban. Perfect for dominating any
 
 
 
